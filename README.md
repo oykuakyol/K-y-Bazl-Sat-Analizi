@@ -1,0 +1,1 @@
+# Sat-larda-deme-Tercihleri-ve-Kategori-Analizi
